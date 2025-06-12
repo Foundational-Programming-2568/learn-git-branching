@@ -1,1 +1,2 @@
-
+งานของ 68030246 รัศมี 
+![alt text](<Screenshot 2025-06-12 141154-1.png>) ![alt text](<Screenshot 2025-06-12 141412-1.png>) ![alt text](<Screenshot 2025-06-12 141934-1.png>) ![alt text](<Screenshot 2025-06-12 142652-1.png>) ![alt text](<Screenshot 2025-06-12 142915-1.png>) ![alt text](<Screenshot 2025-06-12 143100-1.png>) ![alt text](<Screenshot 2025-06-12 143347-1.png>) ![alt text](<Screenshot 2025-06-12 143758-1.png>) ![alt text](<Screenshot 2025-06-12 144056-1.png>) ![alt text](<Screenshot 2025-06-12 145501-1.png>) ![alt text](<Screenshot 2025-06-12 150556-1.png>)
